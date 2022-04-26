@@ -1,6 +1,6 @@
-Rocket VPN Pro V3> Privacy Policy Privacy Policy
+Rocket VPN Pro > Privacy Policy Privacy Policy
 
-CJTech built the Rocket VPN Pro v3 - SSH/HTTP/SSL/SSL + Payload/Slowdns VPN app as an Ad Supported app. This SERVICE is provided by Rocket VPN Pro at no cost and is intended for use as is.
+CJTech build the Rocket VPN Pro  - SSH/HTTP/SSL/SSL + Payload/Slowdns VPN app as an Ad Supported app. This SERVICE is provided by Rocket VPN Pro at no cost and is intended for use as is.
 
 
 The terms used in this Privacy Policy have the same meanings as in our Terms and Conditions, which is accessible at Rocket VPN Pro V3 - SSH/HTTP/SSL/SSL + Payload/Slowdns VPN unless otherwise defined in this Privacy Policy.
