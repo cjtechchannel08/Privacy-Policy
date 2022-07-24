@@ -60,4 +60,4 @@ This policy is effective as of 2022-03-08
 
 Contact Us
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at Rocket VPN Pro. https://www.facebook.com/CJTech-VPN-PRO-102507018847327/
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at ROCKET VPN V2. https://www.facebook.com/CJTech-VPN-PRO-102507018847327/
